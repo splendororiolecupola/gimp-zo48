@@ -1,4 +1,4 @@
-# 
+# rare Adobe Photoshop PC版 扩展 是最佳 Adobe Photoshop PC版 扩展，集成 烟雾模拟 和 运动追踪。安全、可靠、优化，性能最大化。
 
 
 
